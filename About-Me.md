@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **dtaborda.dtt@gmail.com**
 
-- ⚡ Fun fact **I loooove learn new things**
+- ⚡ Fun fact **Cats are our owners without us knowing ._.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
